@@ -1,3 +1,3 @@
-as stated before, my wee wee goes boing boing boing.
+As stated, crashos dick goes boing boing boing, but he does not know im gonna cut it off
 
-i hope you liked my presentation
+thank you for watching my powerpoint
